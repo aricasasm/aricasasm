@@ -1,16 +1,18 @@
-## Hi there 👋
+🌸Hi! I'm Ariana Casas
 
-<!--
-**aricasasm/aricasasm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+I’m an upcoming economics freshman & researcher fascinated with global stock markets and behavioral finance👩‍🎓. My interest focuses on understanding how human behavior shapes market trends and decision-making processes.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+🔍 Research
+
+Participated in Alpha Scholars research program and am currently leading my own independently.
+
+
+📈 Stocks
+
+Passionate about analyzing global market fluctuations and financial assets.
+
+🗣️ Languages
+
+Previously taught English at Refugio de Sonrisas.
